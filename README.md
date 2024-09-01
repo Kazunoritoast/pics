@@ -1,0 +1,8 @@
+![portrait](https://github.com/user-attachments/assets/c271e284-5988-4170-9bae-c501ab964e83)
+![kaxuri break out](https://github.com/user-attachments/assets/60d6f5cd-8edc-4a13-82b9-eac63e3de3bb)
+![Hackathon_certs](https://github.com/user-attachments/assets/cac45e8d-d543-4cb9-ba70-68dec91c0ce1)
+![Dingtalk](https://github.com/user-attachments/assets/a6272e58-ddde-45d9-8045-fa071e69ed21)
+![dbtm camp2](https://github.com/user-attachments/assets/b6894ea6-ba71-4187-81cb-5dd566f31277)
+![Dbtm camp](https://github.com/user-attachments/assets/8500fcfa-9163-43f3-9698-2a04bf459d29)
+![88Hackathon](https://github.com/user-attachments/assets/f4a16d96-70db-47aa-8b60-773909a1307a)
+![pstel color gen](https://github.com/user-attachments/assets/3aecf4d6-4c65-44fb-b682-130dabbafe35)
